@@ -1,2 +1,0 @@
-# SapareVijayKanth
-My Professional Portfolio
